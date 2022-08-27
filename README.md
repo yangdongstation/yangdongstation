@@ -9,3 +9,5 @@ Recently, due to family reasons, there may be 淡圈.
 Then there is... because of the attitude of the family, the underground party is 半糖... 半糖...
 
 And, in most cases, I use more English than Chinese.
+
+<br> 希望有一天我可以，我们可以活在阳光之下，而不是永恒的白夜。   ————Donz <br/>
