@@ -2,7 +2,7 @@
 
 Recently, here I am, not so safe, by the way my new tg id: @AvroraDonz2023
 
-I wrote a second small blog to record my various experiences after becoming trans: https://donzstory.pages.dev
+I wrote a second small blog to record my various experiences after becoming trans: https://d0n2.in
 
 Recently, due to family reasons, there may be 淡圈.
 
